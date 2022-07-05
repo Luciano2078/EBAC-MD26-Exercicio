@@ -1,1 +1,0 @@
-# EBAC-MD26-Exercicio
